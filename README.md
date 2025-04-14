@@ -21,7 +21,7 @@ I blend code and creativity to build intelligent systems, solve real-world probl
 - 🎥 [Portfolio Website](https://scratch-poet-512.notion.site/Nagendra-Hegde-Portfolio-1c96903d6ccd80aaa852c1a9488afd06)
 - 💼 [LinkedIn](https://www.linkedin.com/in/nagendra-hegde-121177194/)
 - 🐙 [GitHub](https://github.com/nagendrahegde)
-- 📬 Email: your.email@example.com
+- 📬 Email: nagendrahegde33@gmail.com
 
 ---
 
